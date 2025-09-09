@@ -2,6 +2,7 @@
 
 ## Ingredients
 
+For main meal:
 - 1 tablespoon olive oil
 - 1 cup roughly chopped sweet onion
 - 2 cloves garlic, minced
@@ -12,6 +13,14 @@
 - 1/4 cup chicken stock
 - 1/2 teaspoon kosher salt
 - 3 cups shredded cooked chicken
+
+For serving:
+- 10 (6-inch) corn tortillas
+- 2 ripe avocados, sliced
+- 1/4 cup chopped fresh cilantro
+- 1/2 cup diced red onion
+- 1/4 cup crumbled cotija
+- 1 lime, cut into wedges
 
 ## Instructions
 
